@@ -2,7 +2,7 @@
 - 👀 I live in Toronto Canada. 
 
 - 💞️ reach me at jpak0444@gmail.com
-- 🧧 send me BTC to this address 189JGpmZssvJtJuoEmskDcCydhhZtDxJQn 
+- 🧧 send me #Bitcoin to this address 189JGpmZssvJtJuoEmskDcCydhhZtDxJQn 
 
 # <h1 align="center" id="heading">My dog Seven as a puppy. He is now 10 years old</h1>
 
