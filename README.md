@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔬I'm currently working on making my own sass<br>🌹 I like gardening
+🔬I'm currently working on making my own sass
 
 
 ## 🌐 Socials:
